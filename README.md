@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PCC-SEC The Pittsburgh chess club seceratary. 
+- 👋 Hi, I’m @PCC-SEC The Pittsburgh chess club secretary. 
 - 
 .
 
